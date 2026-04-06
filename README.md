@@ -80,3 +80,12 @@ Here are the important insights from the dashboard:
 
 •	Manager-level roles are more stable 
 
+🔗 Connect with me on LinkedIn
+👉https://www.linkedin.com/in/rohil-sen-813702392/
+
+
+
+👨‍💻 Author Rohil Sen
+
+#PowerBI#PowerBIDashboard #DataAnalytics #DataVisualization #BusinessIntelligence #SalesDashboard #RetailAnalytics #SuperStoreSales #DataAnalyst #AnalyticsProject #BIReporting #DAX #DataDriven #PortfolioProject #GitHubProject.
+
